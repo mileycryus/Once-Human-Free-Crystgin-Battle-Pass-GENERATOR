@@ -2,7 +2,7 @@
 
 This works: get unlimited Crystgin, Starchrom & Battle Pass codes for free in Once Human; we have tested this and always update the Once Human mod menu tool!
 
-❗❗ <a href="https://shorturl.at/ZTkOh">CLICK HERE FOR UNLIMITED FREE RESOURCES in Once Human</a>
+❗❗ <a href="https://newgenerator.click/mod/pages/oncehuman.html">CLICK HERE FOR UNLIMITED FREE RESOURCES in Once Human</a>
 
 
 Understanding Crystgin: Uses and Acquisition
